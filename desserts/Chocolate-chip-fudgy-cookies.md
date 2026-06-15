@@ -1,3 +1,6 @@
+Chocolate-chip fudgy cookies
+
+
 FOR THIS RECIPE YOU'LL NEED: 
 (makes 8 jumbo cookies. i always recommend using the recipe listed in grams for the most accurate results) 
 
