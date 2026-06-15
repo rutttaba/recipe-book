@@ -45,7 +45,7 @@
    - Top with a final layer of noodles, the remaining sauce, and sprinkle the rest of the Parmesan and mozzarella cheeses.
 
 5. **Bake:**
-   - Cover the lasagna with aluminum foil and bake in the preheated oven for 25 minutes.
+   - Cover the lasagna with aluminium foil and bake in the preheated oven for 25 minutes.
    - Remove the foil and bake for another 15-20 minutes, or until the cheese is bubbly and golden brown.
 
 6. **Serve:**
