@@ -4,8 +4,8 @@ Chocolate-chip fudgy cookies
 FOR THIS RECIPE YOU'LL NEED: 
 (makes 8 jumbo cookies. i always recommend using the recipe listed in grams for the most accurate results) 
 
-220g (or 2 sticks/1 cup) nice butter 
-100g (or 1/2 cup) granulated sugar 
+(or 2 sticks/1 cup) nice butter 
+(or 1/2 cup) granulated sugar 
 200g (or 1 cup) dark brown sugar 
 2 large eggs + 1 yolk 
 4g (or 1 1/4 teas) vanilla extract
