@@ -4,16 +4,16 @@ Chocolate-chip fudgy cookies
 FOR THIS RECIPE YOU'LL NEED: 
 (makes 8 jumbo cookies. i always recommend using the recipe listed in grams for the most accurate results) 
 
-(or 2 sticks/1 cup) nice butter 
-(or 1/2 cup) granulated sugar 
-200g (or 1 cup) dark brown sugar 
+220g nice butter 
+100g granulated sugar 
+200g dark brown sugar 
 2 large eggs + 1 yolk 
-4g (or 1 1/4 teas) vanilla extract
+4g vanilla extract
 8oz of 70% cacao nice baking chocolate (bars not chips) 
-330g (or 2 1/3 cups) AP flour
+330g AP flour
 1/2 teas baking soda
 1/4 teas baking powder 
-7g (or 1 1/4 teas) salt
+7g salt
 flakey salt for topping
 
 Into the bowl of a stand mixer, add room temperature butter and the sugars. Using the paddle attachment, cream for 4-5 minutes on medium high. Then add in eggs + yolk and vanilla and cream on high for another 1 minutes (pausing to scrape down the sides of the bowl halfway through). Creaming times will vary slightly based on the temperature of your product. At the end of the creaming, your mixture should look the way it does in the video. 
